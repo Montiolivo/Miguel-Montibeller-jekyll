@@ -14,4 +14,4 @@ What else do you need?
 
 ### My story
 
-To be honest, I'm having some trouble remembering right now, so why don't you just enter the stark squad [server](https://discord.gg/TUTazkkq) on discord, and we talk and play a fortinite.
+To be honest, I'm having some trouble remembering right now, so why don't you just enter the stark squad [server](https://discord.gg/TUTazkkq) on discord, we talk and play fortinite.
